@@ -1,2 +1,2 @@
-# DAKAAR
-Serving Deliciousness That Elicits Pure Satisfaction. Come, Savor, and Rejoice in Every Satisfying 'Burp'!
+# Masala Manta
+Savor the Voyage of Taste, Saffron Symphony.
